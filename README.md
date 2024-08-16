@@ -1,1 +1,1 @@
-# dekopinda-padang-pariaman
+# dekopinda-karanganyar
